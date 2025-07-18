@@ -6,6 +6,4 @@
 
 - 📫 How to reach me: **work.sararuggeri@gmail.com**
 
-- 📄 Know about my experiences [here](https://docs.google.com/presentation/d/1kaVIRRZEpM8XzHbgaMG0G6xQ27GD4FwfFj34AiBXJSU/edit?usp=sharing)
-
 - 👾 Fun fact **I love crocheting**
