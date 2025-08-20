@@ -6,4 +6,4 @@
 
 - 📫 How to reach me: **work.sararuggeri@gmail.com**
 
-- 👾 Fun fact **I love crocheting**
+- 👾 Fun fact **I love crocheting and pixel art**
